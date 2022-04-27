@@ -3,7 +3,7 @@ Je voulais juste vous prévenir de se qui vas bientôt arriver!
 
 SOON
 
-Un site Web
-Un nouveau BOT Discord
+Un site Web,
+un nouveau BOT Discord.
 
-FR 27/04/2022 12:32
+FR 27/04/2022 12:33
